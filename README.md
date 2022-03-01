@@ -1,1 +1,1 @@
-<div class="tenor-gif-embed" data-postid="14674966" data-share-method="host" data-aspect-ratio="1.77778" data-width="100%"><a href="https://tenor.com/view/panic-tense-cut-it-someone-help-chuck-gif-14674966">Panic Tense GIF</a>from <a href="https://tenor.com/search/panic-gifs">Panic GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+<a href="https://tenor.com/view/panic-tense-cut-it-someone-help-chuck-gif-14674966"><script type="text/javascript" async src="https://tenor.com/embed.js"></script>
