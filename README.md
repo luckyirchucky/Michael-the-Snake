@@ -1,0 +1,1 @@
+<div class="tenor-gif-embed" data-postid="15241638" data-share-method="host" data-aspect-ratio="1.77778" data-width="100%"><a href="https://tenor.com/view/wow-shocked-jaw-drop-gasp-awesome-gif-15241638">Wow Shocked GIF</a>from <a href="https://tenor.com/search/wow-gifs">Wow GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
